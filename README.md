@@ -17,7 +17,7 @@
 
 - 📫 Cómo contactarme **joseto.corties@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/jose-tomas-cortina-espitia/](https://www.linkedin.com/in/jose-tomas-cortina-espitia/)
+- 📄 Conoce acerca de mi experiencia [https://www.linkedin.com/in/jose-tomas-cortina-espitia/](https://www.linkedin.com/in/jose-tomas-cortina-espitia/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
