@@ -1,4 +1,4 @@
-# Hi, I'm José Tomás 👋
+# Hi, I'm José Cortina 👋
 
 Full-Stack Developer from Colombia focused on building real-world web applications, business automation tools, and AI-powered systems.
 
